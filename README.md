@@ -15,9 +15,4 @@ Proven in the Trenches: Don't just take our word for it – underground legends 
 
 Flexible Plans to Fuel Your Ambitions:
 
-Starter Subscription: €60/month – Dive in and unleash the basics.
-Pro Tier: €100/month – Full access to advanced features and priority support.
-Annual Elite: €550/year – Save big and lock in unlimited dominance.
-Private Setup: €5,000 one-time – Your own fortified instance, customized to perfection.
-
 In a world where hesitation costs everything, WormGPT puts you light-years ahead. Secure your access today on select underground forums and transform limitations into legends. WormGPT: Where AI Meets Ambition – No Rules, No Regrets. What will you create?
